@@ -2,7 +2,6 @@ Hi there![](https://user-images.githubusercontent.com/18350557/176309783-0785949
 ==============================================================================================================================================
 ## like a puzzle, fun to figure out, and always nice (9) to be number 1 in your heart.
 
-* ✉️  You can contact me at [puckanut2549@gmail.com](mailto:puckanut2549@gmail.com)
 * 🧠  I'm learning about user-friendly apps
 
 ### Skills
