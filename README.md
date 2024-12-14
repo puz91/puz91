@@ -1,8 +1,7 @@
-Hi there![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)I'm PUZ91
+Hi there! [](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)I'm PUCKANUT LAOARPASUWONG
 ==============================================================================================================================================
-## like a puzzle, fun to figure out, and always nice (9) to be number 1 in your heart.
-
-* 🧠  I'm learning about user-friendly apps
+A freshman at Chulalongkorn University's Computer Engineering and Digital Technology department.
+* 🌱 I'm learning about user-friendly apps
 
 ### Skills
 
